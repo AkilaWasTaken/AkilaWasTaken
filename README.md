@@ -1,5 +1,2 @@
-- 👋 Hi, I’m @AkilaWasTaken
-- 👀 I’m interested in Java,Python
-- 🌱 I’m currently learning Java
-- 💞️ I’m looking to collaborate on Python
-- 📫 How to reach me Akila#2287
+*Professional nerd*
+If u need help hmu: Akila#1126
